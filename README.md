@@ -1,2 +1,2 @@
 Universitas Muhammadiyah Malang
-Gemini
+
